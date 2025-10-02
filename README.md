@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @llnando19ll
 - 👀 I’m interested in CS
-- 🌱 I’m currently looking for M.E. employment
+- 🌱 I’m currently looking for M.E. working at NASA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
